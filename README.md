@@ -4,8 +4,6 @@ YES I DO NEED ALL THESE RENTRIES OKAY
 
 [short rentry](https://rentry.co/iorikai) + [short rentry](https://rentry.co/getyourheartbeat) + [long rentry](https://rentry.co/thesunthatneversets) + [guestbook](https://mikemorton.123guestbook.com/) + [strawpage](https://motohashi.straw.page/)
 
-[f4f on picmix](https://en.picmix.com/profile/donquixote)
-
 <!--
 
 
